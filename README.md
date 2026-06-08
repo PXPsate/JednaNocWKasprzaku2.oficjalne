@@ -1,2 +1,2 @@
-Gra zawiera NSFW
+Gra zawiera NSFW,
 Łopata Production
